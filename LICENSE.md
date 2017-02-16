@@ -1,0 +1,1 @@
+All software is bad and should not be used by anyone.
